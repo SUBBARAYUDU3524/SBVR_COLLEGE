@@ -1,1 +1,0 @@
-# vellore-vit-vennela
